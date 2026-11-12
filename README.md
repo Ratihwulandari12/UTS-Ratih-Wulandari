@@ -1,1 +1,0 @@
-# UTS-Ratih-Wulandari
